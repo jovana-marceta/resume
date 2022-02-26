@@ -2,4 +2,4 @@
 
 My work & intenrships experiences, skills, education, certificates.
 
-![alt text](https://imgur.com/131dea2e-16c4-47b7-a1b5-b99afdadb017)
+![alt text](https://i.imgur.com/FMdH5X7.png)
