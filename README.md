@@ -2,4 +2,3 @@
 
 My work & intenrships experiences, skills, education, certificates.
 
-![alt text](https://i.imgur.com/FMdH5X7.png)
